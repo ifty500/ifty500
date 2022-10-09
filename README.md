@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning **GIS related stuff**
 
-- 📫 How to reach me **iftiyar500@gmail.com**
+- 📫 How to reach me **Email me**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
